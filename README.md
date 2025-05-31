@@ -1,6 +1,6 @@
 ## What you need to know about me
 
-<img src="github-foundations.png" align="right" height="250px" />
+<img src="github-foundations.png" align="right" height="200px" />
 
 - 💎 Pressure makes diamonds. I’m basically a mine.
 - ☑️ I don’t count sheep — I count completed checklists.
