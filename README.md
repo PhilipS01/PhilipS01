@@ -9,4 +9,4 @@
 - 🛜 I rest when my WiFi’s down. Maybe.
 
 Apart from that, I really love my personal projects and the endless commit history I call life.<br>
-Serious inquiries only. You can find my contact info on my profile.
+Serious inquiries only. You can find my contact info on my profile. Or visit my [website](https://philipsi.de).
