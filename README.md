@@ -8,5 +8,5 @@
 - ⏳ Deadlines are scared of me.
 - 🛜 I rest when my WiFi’s down. Maybe.
 
-Apart from that gibberish, I really love my personal projects and the endless commit history I call life.<br>
+Apart from that gibberish, I really love my personal projects and the endless commit history I call life.
 Serious inquiries only. You can find my contact info on my profile. Or visit my [website](https://philipsi.de).
